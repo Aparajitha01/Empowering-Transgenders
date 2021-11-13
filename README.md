@@ -1,1 +1,2 @@
 # Empowering-Transgenders
+#**Transgenders** are part of our community.Transgenders  are part of our society.But still our society is ignoring to accept this fact. So they are not opening-up themselves in this society.  But opportunities given by Government and other sectors are increasing these days. Majority of these people doesn’t know about their opportunities. Opportunities reaching these people are small compared to the opportunities available.To break their inferiority complex,our team has a way to, let them know their strength and their opportunities.
